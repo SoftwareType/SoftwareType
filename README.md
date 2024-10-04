@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @SoftwareType
+- 👀 I’m gonna create this soon lol
